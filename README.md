@@ -10,6 +10,8 @@ After years of work in research(I'm still in it) I became increasingly of the op
 My need to build things on a solitary path led to me running out of money and taking a job working in Big Science again.  Now, humanity is at a crossroads: things are changing very fast, and I can no longer sit on the sidelines writing papers about my ideas and writing code shared only with a select few.  Now is the time I will dedicate every ounce of my being to bringing the ideas of Trash Magic to the world, to create a better world for all of us to live in.
 
 
+Your problem is that you learned STEAM to build a better world for people but ended up just serving the needs of the machines(both literally and figuratively in the form of companies and institutions). By joining together we can build a science and technology that is truly free to help humanity directly.
+
 ## Write down the future based mission of your tribe  (people want to be a part of omething bigger than themselves)
 
 What is best in life?  To care for one another and to have adventures.  
