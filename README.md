@@ -19,8 +19,7 @@ We believe that technology should *only* focus on achieving these two goals for 
 ## Write down your away from rally Cry (start with "it's time..."
 
 
-It's time for us to live for each other, and not for the cold logic of machines.  We must build technology we truly control and use it to share with all humanity freely.
-
+It's time for us to build the technology we need to live free lives dedicated to caring for one other, and not for the cold logic of machines.
 
 
 
