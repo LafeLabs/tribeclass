@@ -18,9 +18,9 @@ We believe that technology should *only* focus on achieving these two goals for 
 
 ## Write down your away from rally Cry (start with "it's time..."
 
+It's time for us to build the technology we need to live free lives dedicated to caring for one other, and not for the cold logic of machines.  We seek to replicate the desire to replicate the technology here to all of humanity.  Join us to copy these things and share them with others and with each other until we are all able to live without the existing industrial system and without money.
 
-It's time for us to build the technology we need to live free lives dedicated to caring for one other, and not for the cold logic of machines.
-
+Success is defined by replication.
 
 
 
