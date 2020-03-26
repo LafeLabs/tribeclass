@@ -10,3 +10,19 @@ After years of work in research(I'm still in it) I became increasingly of the op
 My need to build things on a solitary path led to me running out of money and taking a job working in Big Science again.  Now, humanity is at a crossroads: things are changing very fast, and I can no longer sit on the sidelines writing papers about my ideas and writing code shared only with a select few.  Now is the time I will dedicate every ounce of my being to bringing the ideas of Trash Magic to the world, to create a better world for all of us to live in.
 
 
+## Write down the future based mission of your tribe  (people want to be a part of omething bigger than themselves)
+
+What is best in life?  To care for one another and to have adventures.  
+
+We believe that technology should *only* focus on achieving these two goals for the minimum possible effort, and that it should require no input of newly mined materials.  Magic is defined here as "the replication of desire", and trash is the waste stream of the existing industrial order which we shall overthrow.  In Trash Magic we will, collectively, build a collection of self-replicating documents which can be used to replicate the physical technology required to satisfy all human needs, both physical and spiritual.  We imagine a world of plenty, where our technology is all self-replicating, and forms an ecosystem of materials, energy and information which live in harmony with the living Earth.
+
+## Write down your away from rally Cry (start with "it's time..."
+
+
+It's time for us to live for each other, and not for the cold logic of machines.  We must build technology we truly control and use it to share with all humanity freely.
+
+
+
+
+
+
